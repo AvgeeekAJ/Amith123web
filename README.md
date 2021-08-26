@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Amith123web
+- 👋 Hi, I’m @AvgeekAJ
 - 👀 I’m interested in Cyber secuirity and aviation!!!!!!! so feel free to drop by to have a chat or two about planes or cybersecurity!
      ****warning: once I start talking about planes I never stop :)****
 - 🌱 I’m currently learning through open and paid courses and also working on small projects through virtual machine
